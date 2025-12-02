@@ -622,3 +622,7 @@ With the exception of very small tasks, code is written so others can read it. W
 [![Creative Commons License](https://i.creativecommons.org/l/by-sa/4.0/88x31.png)](http://creativecommons.org/licenses/by-sa/4.0/)
 
 This work is licensed under a [Creative Commons Attribution-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-sa/4.0/).
+ 
+ 040=85  P r o     A l - 1 A l i n a  
+ K?>;=5=>  1 2 / 0 2 / 2 0 2 5   1 4 : 1 8 : 3 7  
+ 
